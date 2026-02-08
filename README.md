@@ -1,1 +1,1 @@
-https://github.com/Albina20000/ono-tebe-nado-fd
+https://github.com/Albina20000/posmotri-v-okno-fd
